@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on spacex
 - 📫 How to reach me trough insta @_code_crusader_
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: BE UNIQUE
+- ⚡ Fun fact: BEHIVE LIKE NEUTRON
 
 <!---
 bingooo0/bingooo0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
